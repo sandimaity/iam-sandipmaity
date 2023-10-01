@@ -3,7 +3,7 @@
 
 # 💫 About Me:
 
-![Masterhead](https://github.com/iam-sandipmaity/iam-sandipmaity/blob/main/Banner%20Photo%20for%20github.png)
+![Masterhead](https://github.com/iam-sandipmaity/iam-sandipmaity/blob/main/Black%20Technology%20LinkedIn%20Banner.png)
 
 
 
